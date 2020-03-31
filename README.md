@@ -116,13 +116,31 @@ listen to what I say
 what did I say?
 
 took through the city to an upward draft
-smoking huge blunts
-taking to another time
+like I'm smoking huge blunts
+taking it another time
 
-from the streets to the tops
+sometimes gotta say no
+sometimes gotta say no
+sometimes gotta say no
+sometimes gotta say no
+yeah yeah aye
+
+from the streets to the tops 
+tops
+
 view’s clouded with a long drop
 yeah
 
+windows break like souls
+reflected was it worth a shot
+worth a shot
+
+through a glimpse to a height
+another height next step
+could mean certain death or not
+
+certain death or not
+certain death or not
 
 “mission complete”
 
