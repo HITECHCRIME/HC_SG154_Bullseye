@@ -11,7 +11,7 @@ Description.
 
 **Title:** Bullseye / **Featuring:** MOTHNODE
 
-**Production:**  / **Lyrics:** 
+**Production:**  / **Lyrics:** MOTHNODE
 
 **Narrative Design:**
 
