@@ -94,7 +94,7 @@ no matter (don't mind) what they say
 listen to what I say
 what did I say?
 
-took through the city to an upward draft
+took through the city to an upward draft 
 like I'm smoking huge blunts
 taking it another time
 
@@ -104,11 +104,8 @@ sometimes gotta say no
 sometimes gotta say no
 yeah yeah aye
 
-from the streets to the tops 
-tops
-
-view’s clouded with a long drop
-yeah
+from the streets to the tops - tops
+view’s clouded with a long drop - yeah
 
 windows break like souls reflected 
 was it worth a shot
