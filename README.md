@@ -22,14 +22,16 @@ Recorded completely raw on a phone mic with no effects whatsoever since my lapto
 “mothnode connected”
 “sir, setup is ready”
 
-(whisper) 
+[WHISPER] 
 from the streets to the tops
 view’s clouded with a long drop
 windows break like souls
 reflected was it worth a shot
 through a glimpse to a height
 another height next step
-could mean certain death...
+could mean certain...
+
+[CHORUS]
 
 from the streets to the tops
 view’s clouded with a long drop
@@ -54,6 +56,8 @@ through a glimpse to a height
 another height next step
 could mean certain death or not
 
+[VERSE1]
+
 ya it is over
 
 xxx
@@ -68,7 +72,52 @@ would it kill you to say no
 
 pow pow pow
 
+[WHISPER]
+from the streets to the tops
+view’s clouded with a long drop
+windows break like souls
+reflected was it worth a shot
+through a glimpse to a height
+another height next step
+could mean certain...
 
+[CHORUS]
+from the streets to the tops
+view’s clouded with a long drop
+windows break like souls
+reflected was it worth a shot
+through a glimpse to a height
+another height next step
+could mean certain death or not
+
+from the streets to the tops
+view’s clouded with a long drop
+windows break like souls
+reflected was it worth a shot
+was it worth a shot, nah
+
+through a glimpse to a height
+another height next step
+could mean certain death or not
+
+through a glimpse to a height
+another height next step
+could mean certain death or not
+
+[VERSE2]
+
+took through the city to an upward draft
+like stepping into a blindspot
+take your connection to a naught
+yeah
+
+no matter what they say
+listen to what I say
+what did I say?
+
+took through the city to an upward draft
+smoking huge blunts
+taking to another time
 
 “mission complete”
 
