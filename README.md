@@ -1,4 +1,4 @@
-[cover] ![](github-cover-bullseye.png)
+![](github-cover-bullseye.png)
 
 # MOTHNODE_ Bullseye
 
