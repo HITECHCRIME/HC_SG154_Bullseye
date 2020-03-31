@@ -6,12 +6,11 @@
 
 ## Project Data
 
-Description.
-
+Recorded completely raw on a phone mic with no effects whatsoever since my laptop is dead. Theme: sniper on the rooftop of the mind gunning down bad habits. This time a bit of a mashup of AMV - might be interesting to introduce Animatrix style animation into the storyworld of Hitech Crime. What do you think? Leave a comment!
 
 **Title:** Bullseye / **Featuring:** MOTHNODE
 
-**Production:**  / **Lyrics:** MOTHNODE
+**Production:** Apollo Young  / **Lyrics:** MOTHNODE
 
 **Narrative Design:**
 
@@ -20,7 +19,19 @@ Description.
 ## Lyrics
 
 ```
+“mothnode connected”
+“sir, the setup is ready”
 
+from the streets to the tops
+view’s clouded with a long drop
+windows break like souls
+reflected was it worth a shot
+was it worth a shot
+through a glimpse to a height
+another height next step
+could mean certain death or not
+
+“mission complete”
 
 ```
 
