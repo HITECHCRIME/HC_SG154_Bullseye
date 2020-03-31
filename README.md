@@ -54,7 +54,21 @@ through a glimpse to a height
 another height next step
 could mean certain death or not
 
-ya
+ya it is over
+
+xxx
+
+would it kill you to say no
+
+xxx
+
+would it kill you to say no
+would it kill you to say no
+would it kill you to say no
+
+pow pow pow
+
+
 
 “mission complete”
 
