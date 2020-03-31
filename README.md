@@ -20,16 +20,41 @@ Recorded completely raw on a phone mic with no effects whatsoever since my lapto
 
 ```
 “mothnode connected”
-“sir, the setup is ready”
+“sir, setup is ready”
+
+(whisper) 
+from the streets to the tops
+view’s clouded with a long drop
+windows break like souls
+reflected was it worth a shot
+through a glimpse to a height
+another height next step
+could mean certain death...
 
 from the streets to the tops
 view’s clouded with a long drop
 windows break like souls
 reflected was it worth a shot
-was it worth a shot
 through a glimpse to a height
 another height next step
 could mean certain death or not
+
+from the streets to the tops
+view’s clouded with a long drop
+
+windows break like souls
+reflected was it worth a shot
+was it worth a shot, nah
+
+through a glimpse to a height
+another height next step
+could mean certain death or not
+
+through a glimpse to a height
+another height next step
+could mean certain death or not
+
+ya
 
 “mission complete”
 
