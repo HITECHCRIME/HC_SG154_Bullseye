@@ -23,37 +23,27 @@ Recorded completely raw on a phone mic with no effects whatsoever since my lapto
 “sir, setup is ready”
 
 [WHISPER] 
-from the streets to the tops
-view’s clouded with a long drop
-windows break like souls
-reflected was it worth a shot
-through a glimpse to a height
-another height next step
-could mean certain...
+from the streets to the tops, view’s clouded with a long drop
+windows break like souls reflected, was it worth a shot
+through a glimpse to a height another height next step could mean certain...
 
 [CHORUS]
 
-from the streets to the tops
-view’s clouded with a long drop
-windows break like souls
-reflected was it worth a shot
-through a glimpse to a height
-another height next step
+from the streets to the tops, view’s clouded with a long drop
+windows break like souls reflected, was it worth a shot
+through a glimpse to a height another height next step
 could mean certain death or not
 
-from the streets to the tops
-view’s clouded with a long drop
+from the streets to the tops view’s clouded with a long drop
 
-windows break like souls
-reflected was it worth a shot
+windows break like souls reflected
+was it worth a shot
 was it worth a shot, nah
 
-through a glimpse to a height
-another height next step
+through a glimpse to a height another height next step
 could mean certain death or not
 
-through a glimpse to a height
-another height next step
+through a glimpse to a height another height next step
 could mean certain death or not
 
 [VERSE1]
@@ -73,35 +63,24 @@ would it kill you to say no
 pow pow pow
 
 [WHISPER]
-from the streets to the tops
-view’s clouded with a long drop
-windows break like souls
-reflected was it worth a shot
-through a glimpse to a height
-another height next step
-could mean certain...
+from the streets to the tops, view’s clouded with a long drop
+windows break like souls reflected, was it worth a shot
+through a glimpse to a height another height next step could mean certain...
 
 [CHORUS]
-from the streets to the tops
-view’s clouded with a long drop
-windows break like souls
-reflected was it worth a shot
-through a glimpse to a height
-another height next step
+from the streets to the tops, view’s clouded with a long drop
+windows break like souls reflected, was it worth a shot
+through a glimpse to a height another height next step
 could mean certain death or not
 
-from the streets to the tops
-view’s clouded with a long drop
-windows break like souls
-reflected was it worth a shot
+from the streets to the tops, view’s clouded with a long drop
+windows break like souls reflected, was it worth a shot
 was it worth a shot, nah
 
-through a glimpse to a height
-another height next step
+through a glimpse to a height another height next step
 could mean certain death or not
 
-through a glimpse to a height
-another height next step
+through a glimpse to a height another height next step
 could mean certain death or not
 
 [VERSE2]
@@ -131,12 +110,11 @@ tops
 view’s clouded with a long drop
 yeah
 
-windows break like souls
-reflected was it worth a shot
+windows break like souls reflected 
+was it worth a shot
 worth a shot
 
-through a glimpse to a height
-another height next step
+through a glimpse to a height another height next step
 could mean certain death or not
 
 certain death or not
