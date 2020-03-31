@@ -111,13 +111,18 @@ like stepping into a blindspot
 take your connection to a naught
 yeah
 
-no matter what they say
+no matter (don't mind) what they say
 listen to what I say
 what did I say?
 
 took through the city to an upward draft
 smoking huge blunts
 taking to another time
+
+from the streets to the tops
+view’s clouded with a long drop
+yeah
+
 
 “mission complete”
 
